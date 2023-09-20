@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **ujwalshakha@gmail.com**
 
--  **ujwalshakha.com**
+-   **ujwalshakha.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
